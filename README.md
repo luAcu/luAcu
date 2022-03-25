@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Lu from Montevideo, Uruguay.
 - 👀 I’m interested in new media arts
-- 🌱 I’m currently learning electronics and programming languages to applies on my own projects.
+- 🌱 I’m currently learning electronics and programming languages to applies in my own projects.
 - 💞️ I’m looking to collaborate on ... arts projects 
 - 📫 How to reach me ... lucia.iluminacion@gmail.com // @ludeluces on instagram
 
